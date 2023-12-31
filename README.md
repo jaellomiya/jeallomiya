@@ -1,1 +1,1 @@
-# Hi 👋, I'm Jeal Lomiya
+### Hi 👋, I'm Jeal Lomiya
